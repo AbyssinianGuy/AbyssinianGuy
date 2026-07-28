@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on custom blockchains, personal entertainment streaming platforms and more.
+I'm currently working on stuff.
 
 
 ## 🌐 Socials:
